@@ -41,7 +41,3 @@ Experience in Substance designer
 Experience in Houdini
 
 Experience in Photoshop
-
-Look at the discord for info
-
-https://discord.gg/k5BxWBbg
